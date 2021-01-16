@@ -1,2 +1,3 @@
 MUG CHOCOLATE CAKE!!
-how to make a mug cake within two minutes.
+
+How to make a mug cake within two minutes.
