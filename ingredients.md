@@ -14,6 +14,6 @@ Ingredients
 
 >vanilla essence-2-3 drops
 
->chovolate chips
+>chocolate chips
 
 >A pinch of salt
